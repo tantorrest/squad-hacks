@@ -1,2 +1,2 @@
 # squad-hacks
-Tony is a bitch
+Remi's a bitch with no jolly ranchers
